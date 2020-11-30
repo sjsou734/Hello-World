@@ -1,1 +1,1 @@
-
+JACK IS BAD AT CSGO
